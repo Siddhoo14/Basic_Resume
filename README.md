@@ -1,1 +1,1 @@
-[Resume](https://siddhoo14.github.io/very-basic-resume/)
+[Resume](https://siddhoo14.github.io/Basic_Resume/)
